@@ -59,8 +59,8 @@ Karena setiap akhir makan, layak ditutup dengan kenikmatan yang sempurna. 🍮�
 
 ## 📞 Kontak
 
-📱 **WhatsApp:**  
-🌐 **Website:** [https://aftermeal.com](https://aftermeal.com)
+📱 **WhatsApp:** -
+🌐 **Website:** -
 
 ---
 
